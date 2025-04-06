@@ -1,1 +1,1 @@
-# approvals
+# APPROVALS and Claims Company
